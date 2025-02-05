@@ -1,6 +1,6 @@
 # EaseUS-Todo-Backup-Home-16.1-Crack-License-Key-Latest-Download-Free-2025
 roroP<div align="center">
-<img src="http://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQBE9wp8N26BT822-v5X4-pgHrhi1-PWs67Pg&s" width="200">
+<img src="https://images.sftcdn.net/images/t_app-icon-m/p/ce103021-eb72-465d-a4ee-01a8a6fff1b1/1833114549/easeus-todo-backup-home-icon.png" width="200">
 </div>
 
 # EaseUS-Todo-Backup-Home Pro
